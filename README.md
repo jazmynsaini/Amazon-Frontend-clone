@@ -70,4 +70,4 @@ Jazmyn Saini
 
 GitHub: @jazmynsaini
 
-Link for LinkedIn: [[Your LinkedIn Profile]](https://www.linkedin.com/in/jazmyn-saini-0170052a7?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app )
+Link for LinkedIn: [[Jazmyn saini]](https://www.linkedin.com/in/jazmyn-saini-0170052a7?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app )
